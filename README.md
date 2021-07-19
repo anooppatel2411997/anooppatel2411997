@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Anoop Patel  @anooppatel2411997
+- 👋 Hi, I’m Anoop Patel  
 - 👀 I’m interested in All New Social Media Marketing Tools
 - 💞️ I’m looking to collaborate on Social Media Marketing Tools...
 - 📫 How to reach me u Can Do Whatsapp +918368381698
